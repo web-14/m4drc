@@ -1,4 +1,4 @@
-# m4drc - Pathways to Success in the DR
+# m4drc - Pathways to Success in the DRC
 The Gods Must Be Crazy - Les Dieux sont tombés sur la tête.
 
 Dans une tribu du désert du Kalahari vierge de tout contact extérieur, la survenue d'une bouteille de Coca-Cola, tombée du ciel (en fait d'un petit avion de tourisme d'où son pilote a nonchalamment jeté cet objet une fois son contenu bu) et considérée comme un présent des dieux, finit par apporter assez vite convoitise, désordre, humiliation, déshonneur, disputes et coups. La tribu décide alors de la rendre « aux dieux ».
